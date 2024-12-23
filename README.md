@@ -58,9 +58,7 @@ Contributions are welcome! If you'd like to improve this project, please follow 
 
 ## Status
 
-In progress 🏗️
+In progress 🏗️ 
 
 ---
 
-
-**Start growing your startup today with the Growth App! 🚀**
